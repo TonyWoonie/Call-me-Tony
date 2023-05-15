@@ -1,2 +1,3 @@
-Hi I'm Tony, check out my patreon for more. 
-I'm too lazy to write more here rn
+Hi I'm Tony, I'm a minor. 
+🇩🇪 
+I like to draw but you can find more information on my Patreon! 
